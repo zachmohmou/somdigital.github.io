@@ -1,1 +1,0 @@
-# somdigital.github.io

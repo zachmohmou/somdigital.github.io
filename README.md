@@ -1,1 +1,1 @@
-# zachmohmou-somdigital.github.io
+# somdigital.github.io
